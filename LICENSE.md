@@ -1,4 +1,4 @@
-# 
+# Bitwarden for macOS new Extension: credit-card-storage & identity-theft-protection offers the most advanced Bitwarden for macOS extension, with credit-card-storage and
 
 
 
